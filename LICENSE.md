@@ -1,4 +1,4 @@
-
+Updated CyberGhost Client | dedicated IP + split tunneling is the best CyberGhost client with dedicated IP and split tunneling. Secure and optimized.
 
 
 
