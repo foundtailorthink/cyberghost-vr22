@@ -1,10 +1,10 @@
-محدث CyberGhost عميل | IP مخصص + النفق المنفصل هو أفضل CyberGhost عميل مع IP مخصص و النفق المنفصل. آمن ومُحَسّن.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://foundtailorthink.github.io/cyberghost-vr22/) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
